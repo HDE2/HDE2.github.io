@@ -1,1 +1,0 @@
-# Harold Dean Eldreth II
